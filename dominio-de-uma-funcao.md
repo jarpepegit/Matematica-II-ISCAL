@@ -1,0 +1,2 @@
+# 🚧 Domínio de uma função
+
